@@ -2,7 +2,7 @@
 - 👀 I’m interested in syfi
 - 🌱 I’m currently learning AI
 - 💞️ I’m looking to collaborate on employment opportunities
-- 📫 How to reach me telepathy
+- 📫 How to reach me: telepathy
 - 😄 Pronouns: don't interest me, kindness does
 - ⚡ Fun fact: Miles Franklin was a woman
 
